@@ -1,6 +1,6 @@
 # Welcome
 
-如果对我感兴趣，请移步到我的 [notion 公开页面](https://qianlei.notion.site) 吧😘
+如果对我感兴趣，请移步到我的 [个人主页](https://qianlei.space) 吧😘
 
 ------
 
